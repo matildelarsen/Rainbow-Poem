@@ -13,6 +13,8 @@ and also you will learn while loving it !!(;
 
 C'est un repo pour mon incroyable poésie arc-en-ciel! Tu vas vraiment l'adorer!
 
+Det her er en repo for mit regnbue digt. Du vil helst sikkert elske det!
+
 Dies ist ein Repo für meine geniale Regenbogen Poesie! Du wirst es auf jeden Fall lieben!
 
 Dit is een repo voor mijn ontzagwekkende regenboog poëzie! U gaat absoluut van het houden!
